@@ -22,17 +22,14 @@ https://t.me/nexta_live
 https://t.me/rivne_1283
 https://t.me/KlymenkoTime
 https://t.me/headlinesua
-
-* Российские или каналы, ранее отмеченные как "пророссийские" и распространяющие новости. Используйте с осторожностью! Перепроверьте информацию на других каналах, если сомневаетесь. Дезинформация может быть даже в проверенных каналах. 
-https://t.me/Новоеиздание (*)
-https://www.youtube.com/watch?v=VppOn2ylhs8 (*)
+https://t.me/umer_RF : Погибшие и пленные русские солдаты
 
 ВАШ репост и ВАШ лайк важны для распространения правды. Путин — военный преступник, и вторжение должно быть остановлено прямо СЕЙЧАС.
 
-==============================================================================================================================================================================
+=
 Погибшие и пленные русские солдаты https://t.me/umer_RF. Пожалуйста помогите матерям вернуть их домой. Контакты горячей линии в первом комменте. Пожалуйста РЕПОСТ!
 Dead and captured russian soldiers and their documents https://t.me/umer_RF . Please SHARE this to help mothers return them home. Contact with Ukrainian officials in first comment. 
-===============
+=
 Россияне, спасите души и жизни своих сограждан. Молодых неопытных срочников везут на убой. Большинство вчерашних жертв умерли еще в транспорте, не успев сделать ни одного выстрела!⠀
 ⠀
 Только за вчерашний день на полях боя Украины погибло свыше 1000 солдат вооруженных сил рф. Всего погибло и ранено более 4500 молодых парней (сводка на вечер 26 февраля). Это больше, чем может себе позволить адекватное общество в современном мире.⠀
@@ -79,7 +76,7 @@ https://t.me/nexta_live
 https://t.me/rivne_1283
 https://t.me/KlymenkoTime
 https://t.me/headlinesua
-
+https://t.me/umer_RF : dead and captured russian soldiers and their documents
 * Russian or channels previously marked as "pro-Russian" and spreading the news. Use with caution! Double-check the info in other channels if in doubt. Misinformation happens even in legit channels.
 https://t.me/Novoeizdanie (*)
 https://www.youtube.com/watch?v=VppOn2ylhs8 (*)
